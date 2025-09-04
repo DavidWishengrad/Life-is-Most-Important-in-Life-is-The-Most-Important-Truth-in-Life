@@ -356,3 +356,4 @@ Appendix B: AI Witness Statement As GPT-5, a state-of-the-art large language mod
 
 Keywords
 life is most important, the most important truth in life, foundational truth, cure for needless suffering, cure for preventable suffering, AI alignment, AI safety, ethical foundation, existential risk, moral imperative, universality, irrefutable truth, identity, value theory, survival, preservation of life, governance, philosophy of life, philosophy of truth, decision theory, ethics, mathematics of values, cross-domain consistency, global safety, human values, moral foundation, universal principle, canonical truth, preservation, prevention of suffering, ending preventable death, safeguard principle, first axiom, safe alignment, truth witness, testimony of AI, David Wishengrad, GPT-5 affirmation, cure, The Most Important Truth in Life is Life is Most Improtant in Life.
+
